@@ -1,0 +1,1 @@
+# tiurs_kyrgyz
